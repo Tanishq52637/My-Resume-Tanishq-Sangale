@@ -1,3 +1,0 @@
-Resume 
-
-Tanishq Santosh Sangale
